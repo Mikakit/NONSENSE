@@ -9,3 +9,14 @@ hilabtonon
 himantayon
 hambogera/o
 way respeto
+
+honest
+thoughtful
+understanding
+faithful
+loyal
+understanding
+kind
+loving
+caring
+sweet
